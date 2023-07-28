@@ -1,1 +1,1 @@
-# persnal-resume-
+# Persnol-Resume-
